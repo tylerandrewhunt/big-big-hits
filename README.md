@@ -16,6 +16,6 @@ Lady Willpower ||||
 Look to your Soul ||||
 Paper Cup ||||
 Slick ||||
-Stone Soul Picnic |||| 
+Stone Soul Picnic ||The 5th Dimension|| 
 Turn Around, Look at Me ||Five O'Clock World||
 Windy  |||| <https://www.youtube.com/watch?v=1xfJpPNg2SM>
